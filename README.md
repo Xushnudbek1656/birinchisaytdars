@@ -1,0 +1,2 @@
+# birinchisaytdars
+Bu zoʻr sayt
